@@ -7,3 +7,7 @@ https://blog.prepscholar.com/which-states-require-the-sat
 ## Interactive map state by state
 https://www.edweek.org/ew/section/multimedia/states-require-students-take-sat-or-act.html
 
+## Story of SAT along the years
+https://www.erikthered.com/tutor/sat-act-history.html#y1994
+
+
